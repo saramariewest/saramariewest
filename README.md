@@ -8,6 +8,6 @@ q(≧▽≦q)
 
 - Ask me about my absolutely legendary sticker collection.
 
-- Pronouns: she/she
+- Pronouns: she/her
 
 - Fun fact: I have a skateboard :D (But I'm still learning how to actually use it, hehe)
